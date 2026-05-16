@@ -1,4 +1,4 @@
-# 
+# Enhance Vegas Pro for PC | Vegas Pro for Windows with Vegas Pro for PC | Vegas Pro for Windows advanced Script: auto-cut & multi-cam-editing, the #1 script. Includes auto-cut and
 
 
 
